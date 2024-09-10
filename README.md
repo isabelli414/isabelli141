@@ -18,6 +18,6 @@ isabelli.nauroki@escola.pr.gov.br
 
 
 
-![](https://media.tenor.com/e4ZwOI-ojxUAAAAi/iashka.gif)
+![](https://media1.tenor.com/m/jvsVBSMabc4AAAAC/rose-cat-give-give-rose-to-cat.gif)
 
 
